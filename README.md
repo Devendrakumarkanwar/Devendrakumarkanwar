@@ -1,11 +1,12 @@
-devendra 
+www devendra 
 kumar 
 kanwar 
 
 
 
 aaj ke din mean karya ke pahechan
-
+ram ram jai johar     
+yaden banao kyiyokii hakikat ban payen 
 
 
 
